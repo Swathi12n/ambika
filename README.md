@@ -1,8 +1,4 @@
 # ambika
-gtyjlkfvm
-hhhjkjn
-hhhhhh
-uuuhgbbhjf
-lllfr
-eeeggg
-hhdgjdj
+123
+456
+789
